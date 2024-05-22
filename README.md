@@ -24,7 +24,7 @@
 - [Ristorante Pizzeria La Sagrestia](https://maps.app.goo.gl/d9jJE6i4qjXVQLpK9) 海鮮燉飯
 - [PORCHETTERIA LA RINASCITA](https://maps.app.goo.gl/qbev91nsBjQJtL6cA) 義大利烤乳豬三明治 經典口味只有麵包和豬肉 建議點其他口味
 - [Regoli Pasticceria](https://maps.app.goo.gl/MtXbz1jfd2i93TS89) 生乳麵包 大大大推！下午會賣完
-- [Pompi](https://maps.app.goo.gl/tYy6paHpt3yajJzj8) 羅馬有多間店 吃過全世界最好吃的提拉米蘇 有不同口味 推薦經典口味 香蕉巧克力
+- [Pompi](https://maps.app.goo.gl/tYy6paHpt3yajJzj8) 羅馬有多間店 吃過全世界最好吃的提拉米蘇 有不同口味 推薦經典口味(大推！) 香蕉巧克力
 - [Gelateria Fassi - Gelato artigianale a Roma dal 1880](https://maps.app.goo.gl/MnEL2CmArM7BHrPx7) Gelato 芒果 提拉米蘇 Zabaglione 口味 鮮奶油必➕
 
 ## 拿坡里
